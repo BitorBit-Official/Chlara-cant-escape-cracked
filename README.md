@@ -7,3 +7,8 @@ IF, the code doesnt work, go to "C:\Users\{PC_USER}\AppData\Local\chrala_cant_ru
 
 contents:
 {'amb_volume': 0.5, 'extra_content': True, 'language': 2.0, 'se_volume': 0.0, 'bgm_volume': 0.0}
+
+
+
+chrala can't escape cracked
+chrala cant escape cracked
