@@ -12,3 +12,6 @@ contents:
 
 chrala can't escape cracked
 chrala cant escape cracked
+
+
+https://discord.gg/FqMMtT2Pks
