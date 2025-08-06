@@ -9,9 +9,16 @@ contents:
 {'amb_volume': 0.5, 'extra_content': True, 'language': 2.0, 'se_volume': 0.0, 'bgm_volume': 0.0}
 
 
+Suggest and talk in discord server:
+https://discord.gg/FqMMtT2Pks
 
+
+
+
+
+TAGS
 chrala can't escape cracked
 chrala cant escape cracked
 
-
-https://discord.gg/FqMMtT2Pks
+chrala can't escape password
+chrala cant escape password
