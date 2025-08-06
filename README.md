@@ -16,11 +16,11 @@ https://discord.gg/FqMMtT2Pks
 
 
 
-TAGS
-chrala can't escape cracked
+TAGS: \n
+chrala can't escape cracked\n
 
-chrala cant escape cracked
+chrala cant escape cracked\n
 
-chrala can't escape password
+chrala can't escape password\n
 
-chrala cant escape password
+chrala cant escape password\n
